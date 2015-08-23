@@ -101,13 +101,16 @@ All of these recipes are very easy and the make a *LOT* of food. Good to bring t
 
 ## Desserts
 
-1. Kahlua chocolate cake
-2. Fuzzy navel cake
-3. Sherry cake
+1. Kahlua chocolate cake*
+2. Fuzzy navel cake*
+3. Sherry cake*
 4. Angel food cake trifle
 5. Raspberry sauce (for brownies, chocolate cakes, cheese cake)
 6. Bannana bread
 7. Strawberry shortcake
+8. Dump cake
+9. Chocolate chip cookies
+10. Snickerdoodle cookies
 
 ## Must-Have gadgets
 
@@ -116,3 +119,5 @@ All of these recipes are very easy and the make a *LOT* of food. Good to bring t
 3. Ziploc bags (gallon and quarter)
 4. Soup pot
 5. Frying pan/skillet
+
+* Requires ingredients that you must be over 21 years of age to purchase
