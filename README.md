@@ -4,12 +4,10 @@ Dedicated to my little sister as she begins her life of living away from the com
 
 ## General tips
 
-1. Cleaning greasy or charred pans
-2. Peeling cloves of garlic
-3. Substitutions
-4. Things to always have in your pantry
-5. Best frozen meals/sides/appetizers
-6. Best food deals
+1. Kitchen tips
+2. Substitutions
+3. Things to always have in your pantry
+4. Best meals/sides/appetizers to buy at grocery store
 
 ## Breakfast
 
