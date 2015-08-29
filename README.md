@@ -49,6 +49,7 @@ Dedicated to my little sister as she begins her life of living away from the com
 7. Fruit salad
 8. Watermelon farrow mint salad
 9. Quinoa tabouli salad
+10. Chicken salad
 
 
 ## Crockpot
@@ -59,12 +60,28 @@ Dedicated to my little sister as she begins her life of living away from the com
 4. Apple sauce/butter
 5. Nana's chili
 
+## Casserole
+All of these recipes are very easy and the make a *LOT* of food. Good to bring to a potluck OR if you want to make during the weekend and want lots of leftovers for the week.
+
+1. Mom's lasagna
+2. Enchilada verde casserole
+3. Cornbread casserole
+4. Green bean casserole
+5. Papa's spicy pasta casserole
+6. Grandma's tortilla
+
 ## Chicken
 
 1. Teriyaki chicken
 2. Greek lemon garlic chicken
 3. Basque chicken
 4. Enchilada verde casserole
+5. Chicken salad
+
+## Pork
+
+1. Million dollar bacon
+2. Potatoes and sausage
 
 ## Fish
 
@@ -73,6 +90,7 @@ Dedicated to my little sister as she begins her life of living away from the com
 3. Shrimp salsa ceviche
 4. Crab (or tuna) patties
 5. Blackened salmon
+6. Tuna salad
 
 ## Beef
 
@@ -83,15 +101,23 @@ Dedicated to my little sister as she begins her life of living away from the com
 
 ## Desserts
 
-1. Kahlua chocolate cake
-2. Fuzzy navel cake
-3. Sherry cake
+1. Kahlua chocolate cake*
+2. Fuzzy navel cake*
+3. Sherry cake*
 4. Angel food cake trifle
 5. Raspberry sauce (for brownies, chocolate cakes, cheese cake)
 6. Bannana bread
 7. Strawberry shortcake
+8. Dump cake
+9. Chocolate chip cookies
+10. Snickerdoodle cookies
 
 ## Must-Have gadgets
 
 1. Grill pan
 2. Garlic twist
+3. Ziploc bags (gallon and quarter)
+4. Soup pot
+5. Frying pan/skillet
+
+* Requires ingredients that you must be over 21 years of age to purchase
