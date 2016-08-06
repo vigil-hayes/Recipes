@@ -91,6 +91,7 @@ All of these recipes are very easy and the make a *LOT* of food. Good to bring t
 4. Crab (or tuna) patties
 5. Blackened salmon
 6. Tuna salad
+7. Steamed mussels*
 
 ## Beef
 
@@ -98,6 +99,12 @@ All of these recipes are very easy and the make a *LOT* of food. Good to bring t
 2. Best steak
 3. Beef stuffing (for stuffed squash or stuffed peppers)
 4. Taco meat
+
+## Sides
+
+1. Mexican-style roasted corn
+2. Red Lobster Cheddar Bay biscuits
+3. Baked potatoes
 
 ## Desserts
 
@@ -111,6 +118,9 @@ All of these recipes are very easy and the make a *LOT* of food. Good to bring t
 8. Dump cake
 9. Chocolate chip cookies
 10. Snickerdoodle cookies
+11. Simple vanilla ice cream
+12. Whipped cream
+13. Brown butter cookies
 
 ## Must-Have gadgets
 
