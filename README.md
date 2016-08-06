@@ -59,6 +59,7 @@ Dedicated to my little sister as she begins her life of living away from the com
 3. Chicken verde
 4. Apple sauce/butter
 5. Nana's chili
+6. Paleo pot roast / tomato beef stew
 
 ## Casserole
 All of these recipes are very easy and the make a *LOT* of food. Good to bring to a potluck OR if you want to make during the weekend and want lots of leftovers for the week.
